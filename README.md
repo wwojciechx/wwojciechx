@@ -7,7 +7,7 @@ I always have a ton of cool ideas for projects, and I love turning them into rea
 
 ## Skills & Strengths
 - 💬 **Communication & Teamwork:** I work great in teams, and I’m all about sharing ideas and collaborating to make projects even better.
-- 🌱 **Open to New Experiences:** Whether it’s a new project, meeting new people, or learning something new, I’m always ready to dive in and get started (and no, I’m not talking about alcohol here! 😉).
+- 🌱 **Open to New Experiences:** Whether it’s a new project, meeting new people, or learning something new, I’m always ready to dive in and get started
 
 ## Let’s Collaborate!
 If you’re interested in working together or just want to chat about new ideas, feel free to reach out! I’m always open to fun, innovative projects.
