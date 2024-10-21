@@ -5,13 +5,14 @@ I'm Wojciech, I like to make some 3D, UX/UI designs, and some programing
 
 I always have a ton of cool ideas for projects, and I love turning them into reality. Whether it’s problem-solving, brainstorming, or just diving into a new challenge, I’m all in.
 
-## Skills & Strengths
+## 🦾Skills & Strengths
 - 💬 **Communication & Teamwork:** I work great in teams, and I’m all about sharing ideas and collaborating to make projects even better.
 - 🌱 **Open to New Experiences:** Whether it’s a new project, meeting new people, or learning something new, I’m always ready to dive in and get started
 
-## Let’s Collaborate!
+## 👥Let’s Collaborate!
 If you’re interested in working together or just want to chat about new ideas, feel free to reach out! I’m always open to fun, innovative projects.
-## Sponsor 
+
+## 💚Sponsor 
 If you are sponsor and you would like to suport me 📧 **You can contact me here**: soon
 
 <!--📧 You can contact me here: [Your Email]
