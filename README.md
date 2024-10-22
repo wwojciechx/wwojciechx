@@ -1,5 +1,5 @@
 ## 👋Hi!
-I'm Wojciech, I like to make some 3D, UX/UI designs, and some programing
+I'm Wojciech, I like to make some 3D, UI/UX designs, and some programing
 
 <!--If I had to describe myself, I’d say I’m **creative**, **funny**, and **patient**. My brain? Well, it’s like a huge maze where every wall is a different idea waiting to be explored! 🧩💡-->
 
